@@ -1,0 +1,1 @@
+This ebook has been published by [Standard Ebooks](https://standardebooks.org/ebooks/nella-larsen/quicksand) and code hosting transferred to the [Standard Ebooks GitHub organization](https://github.com/standardebooks/nella-larsen_quicksand).
